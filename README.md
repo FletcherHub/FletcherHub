@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Fletcher-Stt
+- 👀 I’m interested in Web Development / Etical Hacking
+- 🌱 I’m currently learning JavaScript
+- 💞️ I’m looking to collaborate on Some Projects
+- 📫 How to reach me @Fletcher-Stt on Github { this.page }
+- 😄 Pronouns: He/Him - Ele/Dele
+- ⚡ Fun fact: Friendly S2
