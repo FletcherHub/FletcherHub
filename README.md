@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on Some Projects
 - 📫 How to reach me @Fletcher-Stt on Github { this.page }
 - 😄 Pronouns: He/Him - Ele/Dele
-- 📣 NickName Pronunciation in PT-BR: Flétchér
+- 📣 NickName Pronunciation: Flétchér
 - ⚡ Fun fact: Friendly S2
