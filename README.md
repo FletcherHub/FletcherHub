@@ -5,5 +5,5 @@
 - 📫 How to reach me @FletcherHub on Github
 - 📫 How to reach me stt.fletcher on Discord
 - 😄 Pronouns: He/Him - Ele/Dele
-- 📣 NickName Pronunciation: Flétchér
+- 📣 NickName Pronunciation: Flétcher
 - ⚡ Fun fact: Friendly S2
