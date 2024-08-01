@@ -2,7 +2,8 @@
 - 👀 I’m interested in Web Development / Etical Hacking
 - 🌱 I’m currently learning JavaScript
 - 💞️ I’m looking to collaborate on Some Projects
-- 📫 How to reach me @Fletcher-Stt on Github { this.page }
+- 📫 How to reach me @FletcherHub on Github
+- 📫 How to reach me stt.fletcher on Discord
 - 😄 Pronouns: He/Him - Ele/Dele
 - 📣 NickName Pronunciation: Flétchér
 - ⚡ Fun fact: Friendly S2
